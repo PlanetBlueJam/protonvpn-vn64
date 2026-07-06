@@ -1,4 +1,4 @@
-
+best ProtonVPN Extension | kill-switch + multi-protocol-support is the best ProtonVPN extension, featuring kill-switch and multi-protocol-support. Secure, fast, and optimized for
 
 
 
